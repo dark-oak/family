@@ -2,7 +2,7 @@
 
 <br />
 
-* [🧔 shane-o](https://shane.oharaspace.com/)
+* [🧔‍♂️ shane-o](https://shane.oharaspace.com/)
 * [👩 jamie](jamie/)
 * [👱 abigael](abigael/)
 * [👱‍♀️ adaline](adaline/)
